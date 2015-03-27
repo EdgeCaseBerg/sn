@@ -1,5 +1,3 @@
-h1 S.N. 
-hr 
-
-p
-	This site under construction
+for post, slug in public._data
+  if slug != "index"
+    h2: a(href="/#{ slug }")= post.title
