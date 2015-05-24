@@ -13,3 +13,12 @@ nose over his shoulder, the editors who could't seem to keep their
 paperwork in order, and all the various disasters that seemed to 
 accompany each of his days.
 
+Exiting the hallway he walked through his kitchen, waving towards 
+the back of his flatmates head. Hoping that he wouldn't——
+
+"You have the rent today, Remy?"
+
+"It's Monday Clark, you know I get paid Fridays, just like everyone 
+else", he paused in his step and leaned back into the frame of the 
+door. "Rent's not due until the end of week anyway, why're you on 
+my case about it?" 
