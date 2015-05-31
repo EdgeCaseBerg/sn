@@ -22,3 +22,11 @@ the back of his flatmates head. Hoping that he wouldn't——
 else", he paused in his step and leaned back into the frame of the 
 door. "Rent's not due until the end of week anyway, why're you on 
 my case about it?" 
+
+Clark had turned to face him, his hands clasping a large sub leaking
+vinegar and an italian-looking assortment of meats and greens. His corn
+colored hair was shaggy and hung down just past his chin. Mouth slowly
+chewing away at the large bite he had just taken from his sandwich. Remy
+stood, waiting for him to finish his mouthful. 
+
+
