@@ -3,7 +3,7 @@
 	- Introduce main characters 
 		- Remy
 		- Clark 
-		- ????
+		- Susan
 
 	- Establish jobs for each, personality
 	- Setup point to lead to next chapter
@@ -19,7 +19,7 @@
 
 ### Ch3
 
-	- Establish ????'s friends
+	- Establish Susan's friends
 		- ????
 		- ???? 
 	- Find way for characters to chance meet again 
