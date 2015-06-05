@@ -22,6 +22,10 @@
 	- Establish ????'s friends
 		- ????
 		- ???? 
-	- Find way for characters to chance meet again 
+	- Find way for characters to chance meet again
+	- One of them asks the other out  
 
+### Ch4 
 
+	- First Date between characters
+	- Some type of plot point alternate to romance
