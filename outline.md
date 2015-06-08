@@ -20,7 +20,7 @@
 ### Ch3
 
 	- Establish Susan's friends
-		- ????
+		- Marie
 		- ???? 
 	- Find way for characters to chance meet again
 	- One of them asks the other out  
