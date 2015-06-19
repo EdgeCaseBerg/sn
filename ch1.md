@@ -14,7 +14,7 @@ paperwork in order, and all the various disasters that seemed to
 accompany each of his days.
 
 Exiting the hallway he walked through his kitchen, waving towards 
-the back of his flatmates head. Hoping that he wouldn't——
+the back of his flatmates head. Hoping that he wouldn't—
 
 "You have the rent today, Remy?"
 
@@ -27,6 +27,17 @@ Clark had turned to face him, his hands clasping a large sub leaking
 vinegar and an italian-looking assortment of meats and greens. His corn
 colored hair was shaggy and hung down just past his chin. Mouth slowly
 chewing away at the large bite he had just taken from his sandwich. Remy
-stood, waiting for him to finish his mouthful. 
+stood, impatiently waiting for him to finish his mouthful. 
+
+"Cause", he sniffed, "last time you were late" 
+
+"I won't be this time, I've got a good story written already and the boss 
+promised me the usual plus a little extra". Remy pushed off from the door's
+frame and spun away. Walking down the hallway as Clark muttered something 
+incoherent, but likely offensive. 
+
+Navigating the narrow path through bundles of newspapers, books, and 
+shelves, Remy fumbled with the key to his room in the dark. A moment 
+of scratching later and he slipped into his room.
 
 
