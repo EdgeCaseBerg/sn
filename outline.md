@@ -38,4 +38,9 @@
 ### Ch5
 
 	- expand plot point to provide common experiences with characters
-	- ?
+	- 
+
+### Ch6
+
+	- Two main's working together to address plot point.
+	- 
