@@ -6,6 +6,11 @@
 		- Susan
 
 	- Establish jobs for each, personality
+		- Remy = Journalist
+		- Clark = Chef
+		- Susan = Reporter 
+			- Could lead to a fun "I find the news you're the one who
+			  reports it" or something similar.
 	- Setup point to lead to next chapter
 
 ### Ch2
@@ -28,4 +33,9 @@
 ### Ch4 
 
 	- First Date between characters
-	- Some type of plot point alternate to romance
+	- Plot point unrelated to romance
+
+### Ch5
+
+	- expand plot point to provide common experiences with characters
+	- ?
