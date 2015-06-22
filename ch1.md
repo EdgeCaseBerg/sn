@@ -38,6 +38,6 @@ incoherent, but likely offensive.
 
 Navigating the narrow path through bundles of newspapers, books, and 
 shelves, Remy fumbled with the key to his room in the dark. A moment 
-of scratching later and he slipped into his room.
+of scratching later and he slipped inside.
 
 
