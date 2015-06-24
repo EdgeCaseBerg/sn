@@ -38,6 +38,70 @@ incoherent, but likely offensive.
 
 Navigating the narrow path through bundles of newspapers, books, and 
 shelves, Remy fumbled with the key to his room in the dark. A moment 
-of scratching later and he slipped inside.
+of scratching later and he slipped inside. Unbuttoning his shirt and
+collapsing onto the sunken bed. Groping underneath and pushing aside
+random pieces of clothes, he found the remote control and flipped on the
+small television sitting on his desk. 
+
+<hr>
+
+Late again. No matter how hard she tried something always seemed to come
+up and need her attention. This time it had been an accident on the
+highway. For whatever reason, half populous felt the need to slow down
+and watch the various scraps of metal get cleaned off the road—even 3
+hours after the actual crash.
+
+Pulling up alongside the white news van she shook her head and parked.
+Holding her hand over the handle, she breathed out and enjoyed the small
+quiet sanctuary of her car a second more. A tapping on the glass
+shattering the slight respite.
+
+"You ready to roll?" A bright lenseflair and black box peered at her
+window. "Susan! Come on, channel 5's already beat us here. If you don't
+want the boss on you again, hurry up!"
+
+The light reversed and bobbed down the breakdown lane towards the
+flashing blue sirens. With a groan from both her and the door, she
+stepped out into the street. Her hair whipped by the traffic speeding
+by, she steadied herself and began walking. The camera's light was back
+on her.
+
+"Susan!"
+
+"Jesus, Tom, what?"
+
+"Your shoes?"
+
+Grumbling, Susan turned back towards her car and yanked the backdoor
+open. Fishing through the empty water bottles and spare clothes until
+she found a set of black pumps and hurriedly pulled them on. Fixing the
+heel of the shoe as she walked back towards Tom and sighed.
+
+"You know, it's not like they can see my feet when you've got that thing
+on my face"
+
+"Its illegal to drive without shoes, you know that. Besides those
+network guys can tell"
+
+"Bullshit they can, and that's a stupid law and you know it", fluffing
+her hair and adjusting the microphone pinned to her lapel she smiled at
+Tom, "how do I look?"
+
+"Like we're not paid enough to be on the side of the road at 10:00 at
+night reporting an accident that no one cares about"
+
+"Tom..."
+
+"You look fine Susan, can we just get this over with? My kids sick at
+home and the longer I'm out the longer his mom's going to feed him
+sugar", Tom adjusted the heavy camera on his shoulder and flicked a few
+switches.
+
+"James? You should have said something! I would have brought? Some soup.
+I was just at the—"
+
+"Susan..."
+
+"Right, right. Let's roll Tom"
 
 
