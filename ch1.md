@@ -7,7 +7,7 @@ Shaking the rain from his coat and coughing he brushed himself off.
 
 The entryway was narrow, and the small puddles around too many shoes 
 were rapidly expanding as he stood there. Hanging his coat up and 
-clearing his throat some more he worked off his boots and sighed. It 
+clearing his throat, he worked off his boots and sighed. It 
 had been a long day for him; the usual suspects of his bosses long 
 nose over his shoulder, the editors who could't seem to keep their 
 paperwork in order, and all the various disasters that seemed to 
@@ -39,17 +39,23 @@ incoherent, but likely offensive.
 Navigating the narrow path through bundles of newspapers, books, and 
 shelves, Remy fumbled with the key to his room in the dark. A moment 
 of scratching later and he slipped inside. Unbuttoning his shirt and
-collapsing onto the sunken bed. Groping underneath and pushing aside
-random pieces of clothes, he found the remote control and flipped on the
-small television sitting on his desk. 
+collapsing onto the sunken bed, he sighed heavily. _What a long day_, he
+thought to himself. Tilting his head to look at the source of the blue
+glow in his room, he frowned. Whatever channel the television had been
+on had gone out. Groping underneath his bed, he pushed aside the pieces
+of clothing in search of the remote control. Despite being emersed in
+news all day, he still wanted to watch some. A clatter greeted him, the 
+smooth surface of hard plastic pressing into the palm of his hand as he 
+curled his fingers around it. Picking randomly, he mashed in the buttons
+to channel 4. 
 
 <hr>
 
 Late again. No matter how hard she tried something always seemed to come
 up and need her attention. This time it had been an accident on the
-highway. For whatever reason, half populous felt the need to slow down
-and watch the various scraps of metal get cleaned off the road—even 3
-hours after the actual crash.
+highway. For whatever reason, half the populous felt the need to slow 
+down and watch the various scraps of metal get cleaned off the road—even 
+3 hours after the actual crash.
 
 Pulling up alongside the white news van she shook her head and parked.
 Holding her hand over the handle, she breathed out and enjoyed the small
