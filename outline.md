@@ -50,4 +50,3 @@
 ### Ch6
 
 	- Two main's working together to address plot point.
-	- 
