@@ -12,12 +12,19 @@
 			- Could lead to a fun "I find the news you're the one who
 			  reports it" or something similar.
 	- Setup point to lead to next chapter
+		- flush out remy's room/apartment
+		- remy watching tv reporting on news of a car crash
+		- susan is covering car crash, note that her footage isn't the one that remy sees, he sees the channel news that got there before susan. 
+		- Maybe see susan in the background running back and forth with her shoes
 
 ### Ch2
 
 	- Encounter between main two characters
-		- Where? 
-		- How? 
+		- Scene of a fire
+			- Remy's interviewing people
+			- Susan is arriving on scene
+		- Susan is taking a breather, Remy interviews her
+			- Something interesting happens...
 
 	- Characters part after brief encounter. 
 		- Switch to each perspective and describe each
@@ -43,4 +50,3 @@
 ### Ch6
 
 	- Two main's working together to address plot point.
-	- 
