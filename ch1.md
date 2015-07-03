@@ -42,12 +42,48 @@ of scratching later and he slipped inside. Unbuttoning his shirt and
 collapsing onto the sunken bed, he sighed heavily. _What a long day_, he
 thought to himself. Tilting his head to look at the source of the blue
 glow in his room, he frowned. Whatever channel the television had been
-on had gone out. Groping underneath his bed, he pushed aside the pieces
-of clothing in search of the remote control. Despite being emersed in
-news all day, he still wanted to watch some. A clatter greeted him, the 
-smooth surface of hard plastic pressing into the palm of his hand as he 
-curled his fingers around it. Picking randomly, he mashed in the buttons
-to channel 4. 
+on had gone out. 
+
+Remy shifted up in his seat, pretending his best to be part vegetable.
+But soon enough the quiet was ringing in his ears, and he was pulling
+out the desk chair. Settling into the wooden frame and shuffling papers
+in search of a pen. A lot of people he knew wrote from their couches,
+from beds, or some comfortable soft space — Not Remy.
+
+His hard wooden chair was old, straight backed, and above all: kept him
+awake while he worked. Pen to paper he started drafting the rough
+outline of a column. It wasn't a front-pager but it certainly would make
+it close. As much as his boss hated local news, the old fogey had to
+have some of it or he'd be catching hell from his wife. Remy smiled, the
+day that woman had chewed out his boss in the office had been hilarious.
+Mentioning it in office was a death sentence, but in the safety of his
+home? The combination of job security and amusement picked him up better
+than any drink. Grin in hand he continued writing, moving past the
+outline stage to sorting his notes and writing.
+
+By the end of the hour his article was ready for editing — and he was
+ready for a break. Folding his papers carefully and slipping them into a
+manilla folder, he stood and stretched before poking his head out into
+the hallway. It was dark and there wasn't any light coming from the
+kitchen. Holding his breath and listening he could just barely make out
+feint snoring from the other room.
+
+The refrigerator in the kitchen was full of random leftovers and plastic
+containers of ingredients. A result of Clark's job as a chef, they never
+ran out of food. Remy wasn't sure how, but nearly everyday Clark brought
+home some dish or "spoiled" meal from the high-end restaurant Cliff &
+Clark's. Perks of being an owner he guessed, the food was always perfectly 
+fine to eat, but the rich upper class needed everything absolutely fresh 
+it seemed. _All the same, more for me_, he thought as he fixed up a large 
+sandwich. Chewing thoughtfully, he retreated back to his room and sank 
+onto his bed once more.
+
+Groping underneath, he pushed aside the pieces of clothing in search of 
+the remote control. Despite being emersed in news all day, he still wanted 
+to watch some. A clatter greeted him, the smooth surface of hard plastic 
+pressing into the palm of his hand as he curled his fingers around it. 
+Picking randomly, he mashed on the buttons and channel 4 news sprang into 
+life on his screen.
 
 <hr>
 
