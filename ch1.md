@@ -146,4 +146,67 @@ I was just at the—"
 
 "Right, right. Let's roll Tom"
 
+<hr>
 
+Stan stood behind the bar with his arms crossed, his eyes scanning the
+bar for empty drinks while he maintained half an intelligent
+conversation with the 2 slumped over drunkards. At the sound of the bell
+swinging on the door he looked up and saw Susan walk in. Smiling, he
+waved her over and straightened his tie.
+
+"What'll it be miss?"
+
+Susan grinned, "miss? When'd we get so formal Stan?"
+
+Stan pulled out an empty glass and a couple whiskey stones, continuing
+to chat while he poured Jamesons into it, "this is a classy bar Susan,
+you know I've got to keep it professional, even if I know what you're
+drinking already."
+
+"No one calls me miss except the little kids we interview on feel-good
+clips", taking a sip from the glass in front of her, she shivered as the
+warmth hit her belly, "that hits the spot Stan, thanks"
+
+"I saw you on the tube an hour ago, mighty awful looking accident"
+
+"Why do you think I'm here? If I tried to sleep after seeing what the
+clean up crews were dealing with I'd have nightmares." She reached down
+and peeled off her shoes, "worst part is that I have to stand there in
+heels."
+
+Chuckling, Stan shook his head and filled a glass with water. "I see
+plenty of women in heels dancing to flamenco on our Spanish themed
+nights, how is it you can't stand them for the 5 minutes it takes to
+talk to a camera?"
+
+"Those girls are freaks of nature Stan, its not really that the shoes
+hurt, its just wearing shoes in general."
+
+"Those _freaks_ know how to dance and have fun, how come I never see you
+on our dancing nights? You're only ever here after everyone's left."
+
+Susan drained the last of her drink and rubbed her forehead.  Giving
+Stan a crooked half smile, "obviously because I just love your company."
+
+A bemused look on his face, Stan folded his arms, "you only say that for
+free drinks", he leaned in, "inventory's tonight, so that's not going to
+work."
+
+Pouting, Susan used the straw to push the stones around in her glass,
+feigning a sigh and batting her eyelashes at her friend. "Pleeeeaase? I
+saw some rough shit tonight Stan, I need this."
+
+"No one needs alcohol darling, trust me, you'll have worse nightmares
+after getting red in the face. I've seen some terrible things here
+before and made that mistake." Stan finished cleaning a wine glass and
+hung it up, glancing over to see Susan's frown. 
+
+Susan sighed and held up her glass, "fine, give me one more and I'll pay
+up, but you have to walk me home".
+
+"I can do that, just let me kick the regulars out first". Moving to each
+slouched and drowsing member of the bar, Stan slowly collected his tips,
+checks, and glasses from the counter. By the time Susan had finished her
+drink, he was in the middle of scanning bottles and writing down amounts
+onto a legal pad. A half hour later he was walked a slightly tipsy Susan
+to her apartment.
