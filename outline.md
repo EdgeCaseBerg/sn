@@ -12,11 +12,11 @@
 			- Could lead to a fun "I find the news you're the one who
 			  reports it" or something similar.
 	- Setup point to lead to next chapter
-		- flush out remy's room/apartment
-		- remy watching tv reporting on news of a car crash
-		- susan is covering car crash, note that her footage isn't the one that remy sees, he sees the channel news that got there before susan. 
+		- ~flush out remy's room/apartment~
+		- ~remy watching tv reporting on news of a car crash~
+		- ~susan is covering car crash, note that her footage isn't the one that remy sees, he sees the channel news that got there before susan~. 
 		- Maybe see susan in the background running back and forth with her shoes
-		- susan goes to her regular bar where her friend Stan works as a bartender
+		- ~susan goes to her regular bar where her friend Stan works as a bartender~
 
 ### Ch2
 
@@ -34,7 +34,7 @@
 
 	- Establish Susan's friends
 		- Marie
-		- ???? 
+		- Stan
 	- Find way for characters to chance meet again
 	- One of them asks the other out  
 
