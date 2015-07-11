@@ -82,7 +82,7 @@ Groping underneath, he pushed aside the pieces of clothing in search of
 the remote control. Despite being emersed in news all day, he still wanted 
 to watch some. A clatter greeted him, the smooth surface of hard plastic 
 pressing into the palm of his hand as he curled his fingers around it. 
-Picking randomly, he mashed on the buttons and channel 4 news sprang into 
+Picking randomly, he mashed on the buttons and channel 5 news sprang into 
 life on his screen.
 
 <hr>
