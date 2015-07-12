@@ -24,7 +24,8 @@
 		- Scene of a fire
 			- Remy's interviewing people
 			- Susan is arriving on scene
-		- Susan is taking a breather, Remy interviews her
+		- Susan is taking a breather, Remy interviews her for a column
+			- Possible idea for later: Remy writes a column about reporters and a meta dialogue on the industry?
 			- Something interesting happens...
 
 	- Characters part after brief encounter. 
