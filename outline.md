@@ -17,6 +17,7 @@
 		- ✓ susan is covering car crash, note that her footage isn't the one that remy sees, he sees the channel news that got there before susan. 
 		- Maybe see susan in the background running back and forth with her shoes
 		- ✓ susan goes to her regular bar where her friend Stan works as a bartender
+		- Stan walks her home and tucks her in, set up for next chapter (and give backstory about Stan and friendship)
 
 ### Ch2
 
@@ -24,7 +25,8 @@
 		- Scene of a fire
 			- Remy's interviewing people
 			- Susan is arriving on scene
-		- Susan is taking a breather, Remy interviews her
+		- Susan is taking a breather, Remy interviews her for a column
+			- Possible idea for later: Remy writes a column about reporters and a meta dialogue on the industry?
 			- Something interesting happens...
 
 	- Characters part after brief encounter. 
