@@ -208,5 +208,58 @@ up, but you have to walk me home".
 slouched and drowsing member of the bar, Stan slowly collected his tips,
 checks, and glasses from the counter. By the time Susan had finished her
 drink, he was in the middle of scanning bottles and writing down amounts
-onto a legal pad. A half hour later he was walked a slightly tipsy Susan
+onto a legal pad. A half hour later he was walking a slightly tipsy Susan
 to her apartment.
+
+<hr>
+
+Her steps, like the arm draped over Stan's neck, were heavy. A
+deliberately slow pace in order to walk straight had kept the pair from
+navigating the few blocks from Stan's bar quickly, but Susan's steps
+were finally in sight.
+
+"You're so nice", Susan said happily, pulling down on Stan's shoulder to
+right herself.
+
+"You're so drunk", he replied, his tone teasing.
+
+"N-not, drunk, just... tipsy and... and tired." Susan fished into her
+pocket for keys with her spare hand and patted the shoulder underneath the other.
+"Good friend. Good drinks. Good friend."
+
+Stan watched her struggle, smiling as he remembered the nights in
+college where these situations had often been reversed. Susan had always
+been there whenever he had gone too far, trying to impress some girl
+and drinking too much. And always been there to clean up too. There had
+been nights reversed, and during times like this he was happy to return
+the favor. Shifting, he contemplated trying to help her with the
+keyhole—though last time he'd done that she had made a fuss.
+
+"New locks Susan?"
+
+"What? Uh, y-yeah", the scraping of the lock and jingling keychain
+continued, "they're the damndest thing"
+
+"You want me to give it a go? You know these things, always trouble
+until you break 'em in"
+
+Susan tried one more time before sheepishly handing the keys to Stan.
+Who pretended to have some trouble with the door before opening it and
+waving her in. She stood in the hallway for a moment before turning back
+and giving Stan a hug.
+
+"Thanks Stan, you're the best", she slurred.
+
+"Hey now, don't get sappy on me, it's far too late for that."
+
+Stan grinned, gave her one last squeeze and handed the keys back to her.
+
+"See you this weekend?"
+
+Walking away, Stan raised a thumbs up sign and called back, "go to sleep
+Su!"
+
+Smiling, Susan closed the door and stumbled into her home. Just barely
+remembering to wash her face and brush her teeth before sinking into 
+bed. The soft folds and covers billowing around her, it wasn't long
+before the dark lulled her into a dreamless sleep.
