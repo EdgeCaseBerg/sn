@@ -30,8 +30,8 @@ Clark beamed proudly and hoisted a pot of coffee to the table.
 Raising his eyebrow speculatively, Remy happily accepted a hot cup from
 the excited chef. "Special, huh? What's the special?"
 
-Clark's face somehow split even wider, "it's a secret, but you'll know
-it when you taste it"
+Clark's face somehow split into an even wider grin, "it's a secret, but
+you'll know it when you taste it"
 
 "How do you know I'll like it?", eyes roving the opening he had just
 made with a fork, Remy watched some type of sauce leak out and shrugged.
