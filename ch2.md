@@ -53,7 +53,7 @@ exploded across his tongue.
 and ingredients he had used, voice steadily climbing as he recounted the
 hours he had spent selecting each item used.
 
-"Okay! Okay! But yeah? Special hot sauce?"
+"Okay! Okay! But yeah? _Special_ hot sauce?"
 
 He pointed at him with a fork and emphasized each word, "special hot
 sauce"
