@@ -39,7 +39,7 @@ made with a fork, Remy watched some type of sauce leak out and shrugged.
 
 Clark sat down across the table and began working on his own omelet,
 heartedly chewing and sipping coffee. He pressed on Remy a little more,
-eager Tudor feedback on his recipe. "It ain't going to hurt ya Remy, eat
+eager to get feedback on his recipe. "It ain't going to hurt ya Remy, eat
 up!"
 
 The oregano was a powerful smell, masking whatever the sauce's odor was
