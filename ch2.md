@@ -7,7 +7,7 @@ bathroom.
 Clark wasn't a bad guy, he just wasn't particularly aware. The number of
 times he had kept Remy awake, or woke him up was probably nearing the
 thousands by now, matched only by the pounds of food he had cooked
-whenever he woke Remy up. It almost seemed planned sometimes; like Clark
+whenever he did so. It almost seemed planned sometimes; like Clark
 purposely woke him up because he had made too much food or wanted to
 gossip about this or that.
 
