@@ -15,7 +15,7 @@ Remy washed off his face and finished brushing his teeth as he mulled
 over his thoughts. Dwelling a little while on if Clark purposely woke
 him or not before walking through the hall and into the kitchen. The
 smell of oregano and cheese was strong, and the sight of two massive
-omelets confirmed Remy's suspicions. Clark looked over his shoulder and
+omelets confirmed his suspicions. Clark looked over his shoulder and
 smiled. His voice shook with the rhythm of his swipes on the counter.
 
 "Morning sunshine! Ready for breakfast?"
