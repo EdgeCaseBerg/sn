@@ -57,3 +57,9 @@ hours he had spent selecting each item used.
 
 He pointed at him with a fork and emphasized each word, "special hot
 sauce"
+
+Remy rolled his eyes and continued eating. Grunting appreciably as the
+flavors washed over his pallet. Clark continued talking about the recipe
+until he silenced himself by draining his entire cup of coffee at once.
+His face ripped in a large grin, he guffawed and launched into the
+details of his day's plans. 
