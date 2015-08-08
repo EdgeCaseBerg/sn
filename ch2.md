@@ -62,4 +62,12 @@ Remy rolled his eyes and continued eating. Grunting appreciably as the
 flavors washed over his pallet. Clark continued talking about the recipe
 until he silenced himself by draining his entire cup of coffee at once.
 His face ripped in a large grin, he guffawed and launched into the
-details of his day's plans. 
+details of his day's plans. Remy sipped his own coffee and nodded while
+Clark washed his dishes.
+
+"Anyway, I'll catch you later, got a big dinner planned tonight! The
+mayor's eating at my place!", his steps thundering down the hallway
+followed by the doors creak and slam, Clark exited the building. Remy
+rubbed his temples
+
+ 
