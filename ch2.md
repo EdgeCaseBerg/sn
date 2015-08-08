@@ -55,7 +55,7 @@ hours he had spent selecting each item used.
 
 "Okay! Okay! But yeah? _Special_ hot sauce?"
 
-He pointed at him with a fork and emphasized each word, "special hot
+He pointed at him with a fork and emphasized each word, "_special_ hot
 sauce"
 
 Remy rolled his eyes and continued eating. Grunting appreciably as the
