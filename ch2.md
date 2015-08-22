@@ -67,7 +67,10 @@ Clark washed his dishes.
 
 "Anyway, I'll catch you later, got a big dinner planned tonight! The
 mayor's eating at my place!", his steps thundering down the hallway
-followed by the doors creak and slam, Clark exited the building. Remy
-rubbed his temples
+followed by the doors creak and slam, Clark exited the building.
+
+The apartment silent, Remy sat and rubbed his temples while he finished
+his breakfast. Clark's enthusiasm was overwhelming sometimes, especially
+in the morning. An alarm from his room interupted Remy's thoughts 
 
  
