@@ -72,7 +72,7 @@ followed by the doors creak and slam, Clark exited the building.
 The apartment silent, Remy sat and rubbed his temples while he finished
 his breakfast. Clark's enthusiasm was overwhelming sometimes, especially
 in the morning. An alarm from his room interupted Remy's thoughts, and 
-started him out his chair. Scuffling down the hallway, he shut off the 
-alarm and glanced out the window.
+started him out his chair. Scuffling down the hallway, he knocked a fist 
+against the top of the alarm and glanced out the window.
 
  
