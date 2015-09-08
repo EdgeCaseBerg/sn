@@ -75,4 +75,67 @@ in the morning. An alarm from his room interupted Remy's thoughts, and
 started him out his chair. Scuffling down the hallway, he knocked a fist 
 against the top of the alarm and glanced out the window.
 
- 
+The street below was dark despite the rising Sun's rays. Their yellow
+shine lit the rooftops across the street from his window, the still
+drawn shades of his neighbors reflecting some light onto the road below,
+but not much. Remy stood still for a moment before lifting the window
+and poking his head out.
+
+The noise of the small city tried to talk to him. The rustle of the
+ragged bushes on the island in the street, the whiz of air as each car
+drove speedily through the area. His nose picked up the wafting of fresh
+baked bread from a bakery on the corner. While his ears heard the
+distant horns of traffic jams and the clapping of feet as workers rushed
+into doorways and coffee shops punctuated the din. The small town was
+waking up.
+
+Turning away, Remy moved back into his own wake-up routine. Belly full
+from Clark's meal, he quickly showered and brushed his teeth. Thinking
+about his plans for the day and what he might end up doing. As a
+journalist he was often moving from place to place, and this was one of
+the things he loved about his career. Of course, after running around
+taking notes he had to sit, type, wait and climb the bureaucratic ladder
+to get things published, but that was alright. At least so long as his
+boss didn't bi—
+
+The phone on his desk split his thoughts and he stopped drying himself
+momentarily as he shifted the knot of his towel to one hand and took the
+shrill device in the other. "Hello?"
+
+"Remy, you're going downtown today."
+
+"What's the scoop?"
+
+"Got a guy phoning me every 5 minutes right now, says he knows more
+about that accident that happened last night."
+
+"That crash on the interstate?"
+
+"That's the one"
+
+"Since when do we care about car crashes? The t.v. station already
+talked about it last night."
+
+"Well, get this...", his boss began, Remy rolled his eyes and knew
+immediately where this was going"
+
+"Let me guess. Cover up?"
+
+"That's what the guys saying! So we might have a big scoop here, I want
+you down there yesterday Remy, talk to this guy, get his info, write
+some gold."
+
+"You sure he's not a nutter?" Remy recalled the last time his boss had
+sent him to talk to a lead: 3 days of mud, nearly eaten by a gator, and
+a wet set of boots that still smelled like swamp, "I don't want a repeat
+of last time"
+
+"This guy's legit, get out there! I'm paying you extra for any juice
+that comes from this." He heard a shuffle of the other line, "got a pen?
+Here comes the address"
+
+Within the hour Remy was driving out towards the interstate, a set of
+questions in hand and a well versed set of swears streaming as he
+complained to empty air about his bosses love of tabloid-like stories. 
+
+<hr>
