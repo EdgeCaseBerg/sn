@@ -161,4 +161,70 @@ it. Her thoughts sifted through the various tasks she had wanted to do
 that morning. Then turned back towards her night.
 
 "If it wasn't for that accident", she thought aloud, "I would have got
-so much done", the crash scene, expectedly, had been unpleasant.
+so much done", the crash scene, expectedly, had been unpleasant. The
+amount of blood on the pavement had been substantial, whoever had been
+driving hadn't even tried to break. Susan shivered, people with death
+wishes disturbed her. And distracted her, she had told her boss about it
+before, but if she was the closest to a scene there wasn't much she
+could do.
+
+Sighing, she stood up and walked to her bathroom. Morning routine,
+though it was just past noon, kicking into full swing. Within a half
+hour she had bathed, brushed, and was practicing her fake network smile
+in the mirror. There were a number of local events occurring today and
+she was going to cover half of them.
+
+"Hey!" Three quick raps on the door ruptured her planning, "you almost
+done in there? I've got a date!"
+
+Opening the door her housemate Heather rushed in and dumped a bag of
+makeup onto the sink counter. Within the time it took for Susan to step
+back to give her space she was already making an O shape with her mouth
+as she started applying makeup.
+
+"Big date?"
+
+"Oh you have no idea, I've been practically stalking this guy!" Heather
+laughed, "he's hot Sue, and he's going to the club tonight."
+
+"How do you--?"
+
+"I stole his planner during our first class together, then put it back
+the next." She stated matter of factly, "it's not really stealing if you
+give it back" she continued after catching Susan's judging eye.
+
+"Ok, so when you say date, you don't actually mean a real date with
+him?" Susan raised an eyebrow, watching Heather transform her eyes from
+small beads into radial blossoms of mascara and cream.
+
+"Details, details, it's a date with destiny alright? Besides, he's my
+date, he just doesn't know it yet." Susan smacked her lips as she
+finished running gloss across her lower lip. "I. Am. So. Excited."
+
+Susan shifted in her spot leaning against the washer and dryer
+combination machine. "So, uh, why are you getting ready for the club
+_now_?"
+
+"So I can run into him on campus of course", She stated as if it were
+the most obvious thing on earth, "I run into him, I smile, ask him about
+homework, then later on pretend I'm shocked to find him in the club and
+spend the rest of the night with him. Easy."
+
+Susan did her best to not give a disapproving look, but failed.
+
+"You know Sue, one of these days I'm going to find you a man and you'll
+appreciate all this tutelage."
+
+Rolling her eyes Susan walked out of the room, "if I wanted a
+chuck-n-fuck like you do, I'd get one. I rather have a real man thank
+you."
+
+Heather yelled back some reply about being a good Christian girl that
+Susan ignored as she walked out of the apartment and out into the city.
+Briefly wondering why she had ever agreed to take her friends niece in,
+she stopped at a newsstand to look through headlines. It had been a
+favor; plus she had been lonely; plus it made the rent cheaper; plus...
+Susan continued listing off positives of having Heather around while
+running her fingers through celebrity gossip and tabloids. With a sigh,
+she turned around and marched back to her apartment.
+
