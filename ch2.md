@@ -139,3 +139,26 @@ questions in hand and a well versed set of swears streaming as he
 complained to empty air about his bosses love of tabloid-like stories. 
 
 <hr>
+
+Soft, warm, and inviting. Despite its comfortable traits, the bed in the
+dark room was empty. The futon in the living room however, was not. Its
+black matte surface was shiny, the semi-hard foam cushioning gave way
+under only heavy pressure, and the armrests plastic cup holders provided
+very little comfort to anyone using them as a pillow.
+
+Unfortunately for Susan, she was just beginning to realize all these
+facts as her neck began aching, each pulse stirring her out of her
+whiskey infused slumber. As she stretched her legs and attempted to
+start moving she realized there was a weight on her chest. A small,
+fuzzy, and black weight.
+
+The cat peered at her through one eye, as if to dare her to move and
+cease being a living cushion. Susan scratched behind it's ears and
+rubbed its chin. Then  dumped the cat unceremoniously on the floor and
+stood up. Ignoring the angry hiss, she glance at the clock and sighed.
+Almost half the day was wasted already and she had bed-head to show for
+it. Her thoughts sifted through the various tasks she had wanted to do
+that morning. Then turned back towards her night.
+
+"If it wasn't for that accident", she thought aloud, "I would have got
+so much done", the crash scene, expectedly, had been unpleasant.
