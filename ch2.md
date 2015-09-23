@@ -187,7 +187,7 @@ as she started applying makeup.
 "Oh you have no idea, I've been practically stalking this guy!" Heather
 laughed, "he's hot Sue, and he's going to the club tonight."
 
-"How do you--?"
+"How do you—?"
 
 "I stole his planner during our first class together, then put it back
 the next." She stated matter of factly, "it's not really stealing if you
@@ -226,5 +226,40 @@ she stopped at a newsstand to look through headlines. It had been a
 favor; plus she had been lonely; plus it made the rent cheaper; plus...
 Susan continued listing off positives of having Heather around while
 running her fingers through celebrity gossip and tabloids. With a sigh,
-she turned around and marched back to her apartment.
+she turned around and marched back to her apartment, stopping briefly
+once along the way.
+
+On the turn of the handle she heard Heather's music coming from the
+kitchen.  Stepping through the doorway and kicking off her flats she
+called out: "Heather! Bagel?!"
+
+The music turned down slightly and the young girl poked her head out.
+"What?"
+
+"Bagel? Want one?"
+
+"You poison it?"
+
+"Poi— no, Heather. It's just a bagel, sorry, I'm just tired and was out
+late last night"
+
+A grin split Heather's face as she moved to quickly grab the bag and
+pull the bread from it. "Out late?" She grinned mischievously, "you find
+a _real_ man?"
+
+Ignoring the obvious baiting, Susan's face collapsed into a deadpan
+state. "Oh yeah, smeared across the highway."
+
+"Gross! Sue! You know I don't like that stuff, God!" She shook her head
+as if to clear away the image, "seriously, gross."
+
+Susan continued, "you glad I didn't get the strawberry cream cheese?"
+
+Heather rushed back into the kitchen screaming as Susan laughed and got
+ready for work. Collecting her hated high heels and blazer, she thought
+to herself. Normally, it
+was her running away from Heather, it felt good to win for a change.
+Even if it took dark humor to do it. She thought back to last night,
+moving quickly to the bathroom as the literal human smears played in her
+mind again.
 
