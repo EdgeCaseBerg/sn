@@ -117,7 +117,7 @@ about that accident that happened last night."
 talked about it last night."
 
 "Well, get this...", his boss began, Remy rolled his eyes and knew
-immediately where this was going"
+immediately where this was going
 
 "Let me guess. Cover up?"
 
