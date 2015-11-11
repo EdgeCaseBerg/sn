@@ -11,7 +11,7 @@ whenever he did so. It almost seemed planned sometimes; like Clark
 purposely woke him up because he had made too much food or wanted to
 gossip about this or that.
 
-Remy washed off his face and finished brushing his teeth as he mulled
+Remy washed off his face and stared at his reflection as he mulled
 over his thoughts. Dwelling a little while on if Clark purposely woke
 him or not before walking through the hall and into the kitchen. The
 smell of oregano and cheese was strong, and the sight of two massive
