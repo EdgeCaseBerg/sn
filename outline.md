@@ -38,6 +38,8 @@
 		- Marie
 		- Stan
 	- Find way for characters to chance meet again
+		- Remy investigating a lead
+		- Susan ... ?
 	- One of them asks the other out  
 
 ### Ch4 
