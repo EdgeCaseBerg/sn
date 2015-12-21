@@ -21,6 +21,7 @@
 
 ### Ch2
 
+	- Give Remy some work to do so he's out of town then going back into town when:
 	- Encounter between main two characters
 		- Scene of a fire
 			- Remy's interviewing people
