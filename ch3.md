@@ -1,8 +1,10 @@
 The early morning fog lay in grey pillows across the water front.
 Concrete buildings and large steel containers littered the dock, giving
 the area a half finished industrial feeling. Remy's old car sputtered
-and shook as he drove it onto the gravel path by what he assumed to be
-the administrative building.
+and shook as he drove it; with its frame partially showing through the
+patchwork interior, it fit right in with the partially constructed
+buildings nearby. His car bumped onto the gravel path, squeeled loudly
+and came to a halt by what he assumed to be the administrative building.
 
 Double checking the address he had scrawled on the paper, Remy peered at
 the rusting sign by the door into the shack. Brown letters spelled out
