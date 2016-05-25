@@ -25,7 +25,7 @@ prompting more: "a man called, saying he knew something about the
 accident that happened last night? On the interstate?"
 
 "Has my dad been prank calling strangers again?" Her eyes rolled,
-"listen, my father likes to make up stories and --"
+"listen, my father likes to make up stories and —"
 
 The door swung open and the light was momentarily blocked as someone
 entered the room. Remy turned into the voluminous sound calling out to
