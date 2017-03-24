@@ -31,7 +31,7 @@ The door swung open and the light was momentarily blocked as someone
 entered the room. Remy turned into the voluminous sound calling out to
 him.
 
-"You must be from the paper! I called ____, your boss! What's your
+"You must be from the paper! I called ol' Henry, your boss! What's your
 name?"
 
 Despite the scowl he felt from the man's daughter on his back, the
@@ -50,7 +50,7 @@ wider. "She's a fiery one isn't she? Industrious! Just like her mother,
 always busy", he settled his bulk into a sad looking office chair and
 looked up expectantly.
 
-"Mr Shears--"
+"Mr. Shears--"
 
 "No need to stand on ceremony Rem', call me Charlie!"
 
@@ -66,3 +66,8 @@ night. But, on my way home I was on the highway, and" he leaned in
 closer, "I saw it happen"
 
 "The accident?"
+
+"Was no accident my boy", Charlie leaned across his desk, "that was a 
+murder. Cold. Blooded. Murder."
+
+Remy blinked, "What's that now?"
